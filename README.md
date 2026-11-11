@@ -1,4 +1,4 @@
-# Parasite SEO Article 3 â€” Keyword: sattu benefits women protein iron vegetarian
+# Parasite SEO Article 3 "” Keyword: sattu benefits women protein iron vegetarian
 
 ## H1
 Sattu Benefits for Women: Protein, Iron, and Energy in a Traditional Indian Food
@@ -7,7 +7,7 @@ Sattu Benefits for Women: Protein, Iron, and Energy in a Traditional Indian Food
 Sattu is a roasted Bengal gram flour popular in North and East India. Learn its nutritional benefits for women, including plant protein, iron, and how to use it in daily meals.
 
 ## Quick Answer
-Sattu is a flour made from roasted Bengal gram (chana) that provides about 20-25g of protein per 100g. It is a traditional Indian source of plant protein, iron, and magnesium â€” useful for vegetarian women who need affordable nutrition.
+Sattu is a flour made from roasted Bengal gram (chana) that provides about 20-25g of protein per 100g. It is a traditional Indian source of plant protein, iron, and magnesium "” useful for vegetarian women who need affordable nutrition.
 
 ## Body
 
@@ -24,7 +24,7 @@ Sattu is a flour made from roasted black chickpeas (kala chana). It is a traditi
 - Low glycemic index: 35-45
 
 ### Benefits for Women
-**Plant-based protein:** At 20-25g protein per 100g, sattu is comparable to urad dal and significantly higher than regular atta. A two-tablespoon serving provides about 6-7g of protein â€” more than a glass of milk.
+**Plant-based protein:** At 20-25g protein per 100g, sattu is comparable to urad dal and significantly higher than regular atta. A two-tablespoon serving provides about 6-7g of protein "” more than a glass of milk.
 
 **Iron support:** Sattu contains 4-5mg of iron per 100g. For menstruating women, where iron deficiency anaemia is common, sattu can be a useful dietary addition. Pairing it with lemon juice (vitamin C) improves iron absorption by up to 3-6 times.
 
@@ -38,13 +38,13 @@ Sattu is a flour made from roasted black chickpeas (kala chana). It is a traditi
 - **In rotis or litti:** Mix sattu flour with water to make a filling for whole wheat rotis.
 
 ### Evidence Quality
-Most research supporting sattu benefits comes from studies on chickpeas, dietary fiber, and plant protein â€” not clinical trials using sattu itself. Sattu should be viewed as a whole-food nutrition option, not a treatment for anaemia or any medical condition.
+Most research supporting sattu benefits comes from studies on chickpeas, dietary fiber, and plant protein "” not clinical trials using sattu itself. Sattu should be viewed as a whole-food nutrition option, not a treatment for anaemia or any medical condition.
 
 ### Who Should Avoid Sattu
 People with chickpea allergies, diagnosed kidney disease requiring protein restriction, or IBS triggered by high-FODMAP foods should consult a doctor.
 
 ### Related Reading
-For a detailed guide on sattu â€” including nutrition, how to use it, and its role in Indian women's diets â€” see [Poshita's sattu ingredient guide](https://poshita.org/ingredients/sattu/).
+For a detailed guide on sattu "” including nutrition, how to use it, and its role in Indian women's diets "” see [Poshita's sattu ingredient guide](https://poshita.org/ingredients/sattu/).
 
 ---
 *Medically reviewed by a qualified health professional. This article is for informational purposes and is not a substitute for medical advice.*
